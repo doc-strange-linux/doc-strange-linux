@@ -2,7 +2,7 @@
 - 👀 I’m interested in to meet some people who shares my interest interst in linux
 - 🌱 I’m currently a truck driver (driver)/mechanic 
 - 💞️ I’m looking to collaborate/meet someone who's willing to share his or hers knowlege with me
-- 📫 How to reach me ... im avalable on teun.vandeven@outlook.com.au if u are willing to teach me
+- 📫 How to reach me ... im avalable on emailt teun.daf@gmail.com if u are willing to teach me
 - ⚡ Fun fact: ... u find out if u are willing XD
 
 <!---
